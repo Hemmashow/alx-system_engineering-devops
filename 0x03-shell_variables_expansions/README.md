@@ -1,1 +1,1 @@
-Path to Success
+Beautiful paths
